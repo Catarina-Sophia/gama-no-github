@@ -1,0 +1,1 @@
+O curso tem mostrado novos caminhos. Nao explica os detalhes que gosto, mas me fez melhor autodidata
